@@ -9,7 +9,10 @@ Me chamo Wictor Matheus.
 - progaramação 
 - --------------------------------------------------------------
 
--  ## Minhas reses sociais
+-  ## Minhas redes sociais
 
--insta: wictoeMatheus 
--fecebook: wictor
+- insta: @wictoeMatheus 
+- facebook: wictorMatheussantana
+
+--------------------------------------------------------------
+
