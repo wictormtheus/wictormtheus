@@ -5,8 +5,9 @@ Me chamo Wictor Matheus.
 
 - Tenho 15 anos de idade 🟣
 - Sou aluno da escola Monteiro Lobato 👀 👦
-- estou utilisando o github para estudas 🏫
-- progaramação 
+- estou utilizando o github para estudar 🏫
+- programação e computação/informatica
+- 
 - --------------------------------------------------------------
 
 -  ## Minhas redes sociais
