@@ -12,7 +12,7 @@ Me chamo Wictor Matheus.
 
 -  ## Minhas redes sociais
 
-- insta: @wictoeMatheus 
+- insta: @wictorMatheus 
 - facebook: wictorMatheussantana
 - Roblox: wictor_360
 
